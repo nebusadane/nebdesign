@@ -1,0 +1,1 @@
+My website focuses on the interior design of houses. It is an online platform in which people can order designs for their houses with a fair price. Anyone who is interested in simple, modern, and artistic life is welcomed. In addition, investors have the opportunity to buy shares and become part of our team.
